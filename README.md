@@ -1,1 +1,1 @@
- https://shahriarshafin.me/
+ This page is inspired by: https://shahriarshafin.me/
